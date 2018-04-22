@@ -6,6 +6,7 @@ Cсылка на yandex disk. Отформатированный текст ВК
 ---
 
 ccылка на ролик в youtube: В РАБОТЕ
+
 PDF и/или shower со слайдами: https://yadi.sk/i/T5SRaExN3Uf9NR
 
 ---
